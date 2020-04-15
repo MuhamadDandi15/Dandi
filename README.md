@@ -1,2 +1,0 @@
-# Dandi
-PELAJAR
